@@ -5,3 +5,4 @@
 - 💡 I'm also interested in open science, and try to convince others of the merits of a more open academy.
 - 🏃 Fun fact: I've done 111 parkruns, all in South Africa. I can't wait to do one out of the country when we can travel again!
 
+Check out my website: https://maxinenschaefer.github.io/MaxineSchaefer/
